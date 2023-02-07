@@ -9,7 +9,7 @@
  😄 Pronouns: Deez Nuts<br/>
  ⚡ Fun fact: I boned Mrs. Robinson<br/>
  <br/>
- I'm smaller than your average vultures and I prefer to hunt, attack, 
+ I'm smaller than your average vulture and I prefer to hunt, attack, 
  and eat my prey while their projects are somewhat alive, though I will 
  also partake in completely dead projects from time to time.<br/>
 
